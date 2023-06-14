@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Promise77562
 - 👀 I’m interested in computational Biology and Bioinformatics
-- 🌱 I’m currently a postgraduate student 
+- 🌱 I’m currently a Master degree candidate in Parasitology and Public Health 
 - 💞️ I’m looking to collaborate on Biostatistics
 - 📫 How to reach me is via whatsapp 2347026382450 email chigbogunwankwocha@gmail.com
 
